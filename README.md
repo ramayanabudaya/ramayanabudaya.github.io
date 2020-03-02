@@ -1,2 +1,1 @@
-# ramayanabudaya.hitgub.io
-Tentang Cerita Rama dan Sinta
+Tentang cerita rama dan sinta
